@@ -1,4 +1,4 @@
-# Portfólio de Engenharia de Dados - Lucas041123
+# Portfólio Lucas Henrique Carrascosa
 
 Bem-vindo ao repositório do meu portfólio pessoal, um espaço dedicado a demonstrar minhas habilidades e projetos na área de Engenharia e Análise de Dados.
 
