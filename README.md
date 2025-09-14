@@ -49,4 +49,4 @@ Abaixo estão os principais projetos detalhados no site do portfólio.
 Estou aberto a novas oportunidades e colaborações. Sinta-se à vontade para entrar em contato:
 
 * **E-mail:** [lucascarrascosa@hotmail.com]
-* **LinkedIn:** [https://www.linkedin.com/in/lucas-henrique-carrascosa-254125291](https://www.linkedin.com/in/lucas-henrique-carrascosa-254125291/)**
+* **LinkedIn:** [https://www.linkedin.com/in/lucas-henrique-carrascosa-254125291](https://www.linkedin.com/in/lucas-henrique-carrascosa-254125291/)
